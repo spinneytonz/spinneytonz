@@ -1,4 +1,4 @@
-‎ ‎ hihihi I'll edit more later ok..? ok awesome 
+‎ ‎ hihihi i'll edit more later ok..? ok awesome 
 
 ![lthing](JGJT0TJ.png)
 
@@ -7,5 +7,7 @@ names are  Nettle or Leaf !
 c + h ‎   OK
 
 I like pokemon and phighting and other stuff
+
+no set dni but i'll block freely
 
 right so I dunno what to put herew bywbye
