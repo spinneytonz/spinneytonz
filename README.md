@@ -4,8 +4,6 @@
 
 names are  Nettle or Leaf !
 
-c + h ‎   OK,,, inspo is fine i think
-
 I like pokemon and phighting and other stuff
 
 I LOVE BIOGRAFT
